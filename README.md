@@ -1,6 +1,6 @@
 # Free-Scripts-On-Edgenuity
 
-These would be just lots of free scripts for the dogsh*t dipsh*t fuck*ng no eduction loction Edgenuity. F*ck em hoes. You cooked.
+These would be just lots of free scripts for the d*gsh*t d*psh*t f*ck*ng no eduction loction Edgenuity. F*ck h*es. You're cooked mf.
 
 This will be updated with more scripts every now and then.
 
